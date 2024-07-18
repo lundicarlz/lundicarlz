@@ -1,7 +1,7 @@
 - lundicarlz here
 - 👀 code is life
-- coffe + code = life
-- 📫 How to reach me @ lundimorris@gmail.com, +256787591981
+- coffee + code = life
+- @ lundimorris@gmail.com, +256787591981
 
 
 <!---
